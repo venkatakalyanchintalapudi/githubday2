@@ -17,3 +17,10 @@
 
 RRR 🔥 🤝 🌊 
 
+> ***GOURI G KISHAN***
+
+![gouri](https://i.pinimg.com/736x/a7/41/a6/a741a6688445388bd13d8c821f041eb5.jpg)
+![HEART](https://www.filmibeat.com/ph-big/2020/12/gouri-g-kishan_16085626227.jpg)
+![DHILSE](https://cinespot.net/gallery/d/3510090-1/Gouri+G+Kishan+at+Jaanu+Movie+Pre+Release+Event+_8_.JPG)
+
+
